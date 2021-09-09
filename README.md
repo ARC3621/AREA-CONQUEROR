@@ -26,7 +26,7 @@ YANG DIBUTUHKAN
 
 🔘nge kudt GABUT? Gass kan
 
-▬▬▭▬▬▭▬▬▭▬▬▭▬▬▭▬▬▭▬▬
+▬▬▭▬▬▭▬▬▭▬▬▭▬▬▭▬▬▭
 
 OWN
 ❄️ꪶ࿋྄ིᤢꫂ   (LEON)  ꪶ࿋྄ིᤢꫂ❄️
@@ -35,7 +35,7 @@ OWN
 *SUPPORT* :
 
 • *TEAM ZEUS*
-▬▬▭▬▬▭▬▬▭▬▬▭▬▬▭▬▬▭▬▬
+▬▬▭▬▬▭▬▬▭▬▬▭▬▬▭▬▬▭
 
 Pakai Lambang
 Minta ke admin
